@@ -1,0 +1,1 @@
+# brawlstars-events.github.io
